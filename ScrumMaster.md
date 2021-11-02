@@ -1,0 +1,1 @@
+Resolving issue done by Scrum Master.
