@@ -1,1 +1,0 @@
-Issue solved by Claris
